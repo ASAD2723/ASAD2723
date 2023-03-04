@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **asadkhanwork000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iSaqRXirVhV5Jz7Xy70az90nnP7p8ytd/view?usp=sharing](https://drive.google.com/file/d/1iSaqRXirVhV5Jz7Xy70az90nnP7p8ytd/view?usp=sharing)
+- 📄 Know about my experiences [resume link](https://drive.google.com/file/d/1iSaqRXirVhV5Jz7Xy70az90nnP7p8ytd/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
